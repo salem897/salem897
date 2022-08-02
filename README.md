@@ -7,10 +7,7 @@ I am Montalvo. I´m currently studying High School, and I really like programmin
 - I like Anime, my favorite is Blue Exorcist. 
 
 
-
-![](https://tenor.com/es/ver/rin-okumura-gif-22006381)
-
-
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQL_v-2DyjNz-yyE__G6k-L4x2LnGkkm6H8vg&usqp=CAU)
 
 ![](https://tortugame.com/wp-content/uploads/2020/02/Tortuga-de-Orejas-Rojas-e1581158681269.jpg)
 
