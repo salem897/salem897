@@ -4,7 +4,7 @@ I am Montalvo. I´m currently studying High School, and I really like programmin
 
 -> I´m from Baja California Sur, México.
 
--> I’m currently learning to use Python, so I´m very excited about it.
+-> I’m currently learning to use Python and R, so I´m very excited about it.
 
 -> I have compited in mecatronic contests doing Zumo Cars with the help of Arduino.
 
